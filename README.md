@@ -21,6 +21,7 @@ _If I had to pick a deadly sin, it'd have to be be gluttony_
 * [Ya Hala Lebanese](http://yahalarestaurant.com/) 
 * [East India Company](http://eicpdx.com/)
 * Kenny and Zukes (http://www.kennyandzukes.com/) good breakfast & lunch
+* Pelmeni at [Kachka](http://kachkapdx.com/) (russian dumplings)
 
 
 ## Adventure 
